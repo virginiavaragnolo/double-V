@@ -1,1 +1,1 @@
-Ricetta pancakes!!
+RICETTA PANCAKES!!
